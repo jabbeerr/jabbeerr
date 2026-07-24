@@ -14,7 +14,9 @@
 <img width="2048" height="74" alt="Image" src="https://github.com/user-attachments/assets/2a609b2f-e4ae-4871-a17b-88adcebaaf54" />
 <img width="2048" height="74" alt="Image" src="https://github.com/user-attachments/assets/9f48219f-3fc1-406e-957f-14bdcb44cd0a" />
 <img width="2048" height="74" alt="Image" src="https://github.com/user-attachments/assets/2a609b2f-e4ae-4871-a17b-88adcebaaf54" />
+
 𝒮HIPS　I　AM　OKAY　WITH　! !　:
+
 
 - janka ( a LOT LOT LOT ! ! ! )
 - riyoamo
