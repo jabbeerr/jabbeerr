@@ -17,11 +17,11 @@
 <img width="2048" height="74" alt="Image" src="https://github.com/user-attachments/assets/2a609b2f-e4ae-4871-a17b-88adcebaaf54" />
 𝒮HIPS　I　AM　OKAY　WITH　! !　:
 
-　　✦　janka ( a LOT LOT LOT ! ! ! )　　riyoamo　　meridretta　　engris　　amorudo　　+ more ! ask away .
+- janka ( a LOT LOT LOT ! ! ! )　　riyoamo　　meridretta　　engris　　amorudo　　+ more ! ask away .
 
 𝒮HIPS　I　AM　𝗡𝗢𝗧　OKAY　WITH　! !　:
 
-　　✦　illegal ships　　follozan　　zanru　　riyozan　　follofu　　zanjin ( EUGH. )　　+ more ! ask away .
+- illegal ships　　follozan　　zanru　　riyozan　　follofu　　zanjin ( EUGH. )　　+ more ! ask away .
 
 　ᶜʳᵉᵈ ² @ˣʸᶜʳᵒʷˡᵒ & @ᵘᶻᵐᵃᶜᶜʰⁱᵃᵗᵒ ᵒⁿ ᵗᵘᵐᵇˡʳ ⁴ ᵈⁱᵛⁱᵈᵉʳˢ
 <img width="2048" height="74" alt="Image" src="https://github.com/user-attachments/assets/2a609b2f-e4ae-4871-a17b-88adcebaaf54" />
