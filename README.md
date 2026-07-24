@@ -27,7 +27,8 @@
 
 - illegal ships
 - follozan
-- zanru　　riyozan
+- zanru
+- riyozan
 - follofu
 - zanjin ( EUGH. )
 - +more ! ask away .
