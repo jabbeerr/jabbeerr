@@ -37,7 +37,7 @@
 - zanjin ( EUGH. )
 - +more ! ask away .
 
-  𝒮HIPS　I　AM　ON THIN ICE　WITH　( iwc )　!　!　:
+  𝒮HIPS　I　AM　ON　THIN　ICE　WITH　( iwc )　!　!　:
 
   - jabfu
   - riyorudo
